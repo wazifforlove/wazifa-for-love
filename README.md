@@ -1,0 +1,1 @@
+# wazifa-for-love
